@@ -1,2 +1,0 @@
-# VeeramaniRamaraj
-VeeramaniRamaraj
